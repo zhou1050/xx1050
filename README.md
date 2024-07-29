@@ -1,4 +1,4 @@
-# [🟠🟡🟢🔵 机场订阅：xx1050.xyz](https://xx1050.top)
+# [🟠🟡🟢🔵 机场订阅：xx1050.top](https://xx1050.top)
 
 <td>👍👍👍👍👍</td> https://xx1050.top
 
